@@ -14,7 +14,7 @@
 
 ### akhirnya saya menjalankan hubungan dengan novi dan ada problem gara-gara saya cemburu akhirnyaa novi marah banget kesaya dan sampai mau itulah akhirnya saya menangis saya juga ga tau kenapa saya sayang banget sama novi sampai takut kehilangan mpiee karna cinta saya tulus dan cara mendapatkan nya atas izin yang maha kuasa dan perjuangan saya ,akhirnya novi memaafkan sayaa pas bulan puasa dan pas lebaran saya ingin main dengan novi pas saya sampai sukamakmur ternyata mpiie lg sama kknya saya menunggu dan teman saya rumahnya disitu akhirnya saya nginap di rumah teman saya besok sore saya ketemu dengan novi untuk ngasih bingkisan ya walapun sebentar dan masih malu-malu juga novinya saya berani aja ke rumah nya asal dapet izin novi wkwkw aakhirnya saya pulang sampai malem dan kehujanan tapi gpp yang pentimg saya bisa ketemu ama novi dan itu bikin saya senang
 
-![gambar](IMG_6666 - Copy.jpg)
+![gambar](IMG_6666-Copy.jpg)
 
 ### lanjuttt ntarr lgi wkwkk
 
