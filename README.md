@@ -16,7 +16,7 @@
 
 ![gambar](IMG_20220619_185743.jpg)
 
-### lanjuttt ntarr lgi wkwkk
+### saya inginn jujur saya juga tidak tahu sama diri saya sendiri kenpa sya bisa sayang banget sama orang yang sekarang bersama saya dan saya takut kehilangan dan karena kecemburuan saya yang berlebihan saya sadar saya salah melakukan hal bodoh lagi dan melakukan kesalahan yang sama tapi sekarang sayang gak akan melakukan lagi maafin kesalahan saya cantikk
 
 
 
