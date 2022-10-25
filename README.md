@@ -18,8 +18,9 @@
 
 ### saya inginn jujur saya juga tidak tahu sama diri saya sendiri kenpa sya bisa sayang banget sama orang yang sekarang bersama saya dan saya takut kehilangan dan karena kecemburuan saya yang berlebihan saya sadar saya salah melakukan hal bodoh lagi dan melakukan kesalahan yang sama tapi sekarang sayang gak akan melakukan lagi maafin kesalahan saya cantikk
 
+![gambar](IMG-20220629-WA0018.jpg)
 
-
+### aku telah mencintai seseorang yg bersamaku saat ini dengan tulus dimana aku merasakan sebuah kebahagiaan dan meras di cintao oleh sesorang,dia sangat sempurna bagiku,walaupun terkadang aku dibuat heran dengan sikapnya,yang dalam satu waktu bisa menyenangkan dan menyebalkan tapi tidak sedikitpun aku lelah dengan sikapnya,karena aku sangat menyanginya,dia memang bukan cinta pertamaku tapi dia,cinta yang membuatku merasakn berbagai pengalaman yang belum pernah aku alami sebelumnya,aku sudah lebih bersyukur dengan apa yang kamu kasih padaku walaupun aku blm bisa membuatmu bahgia layaknya wanita lain diluar sana yang diratukan oleh prianya maafin aku ya,alesan aku ga mau kamu pergi dariku karena kamu orang yang berharga dalam hidupku rumah ke2 ketika aku sedang terpuruk,wanita ke2 yang aku syang setelah ibuku,terimakasih untukmu wanita yang aku cintai dan sayngi sedalem ini,wanita yang paling istimewa didaftar chatinganku didaftar hidupku pokonya kamu wanita ke2 yang aku sayngg banget seteah ibuku,tanpamu,mungkin aku tak sehebat ini,lebih tangguh pokoknya bikin semangatt
 
 
 
