@@ -28,4 +28,6 @@
 
 ![gambar](IMG_20220619_193803.jpg)
 
+### Maaf yaa kalau selama ini aku masih belum bisa jadi apa yang kamu mau. Maaf juga untuk semua rasa sakit, sedih dan juga kecewa yang aku kasih ke kamu, jujur aku juga gamau ngelakuin hal sebodoh itu, tapi itu terjadi tanpa aku sadari dan tanpa aku mau. Dan maaf juga udah gagal jadi cowok yang kamu mau.Tapi satu hal yang harus kamu tau, aku di sini selalu berusaha buat perbaiki diri aku, ntah itu sifat atau sikap aku ke kamu. Dan kamu juga harus tau kalo aku di sini sayang bangettt sama kamuu Sekali lagi maaf yaa kalo aku belum bisa jadi apa yang kamu mau, tapi aku juga bakalan berusaha terus kokk love you
+### kamu mau tau serius apa aku kekamu? Mari aku jelaskan, bermain-main bukan lagi masanya. aku takut menyakiti dan melukai, semakin sederhana memaknai cinta tanpa ba-bi-bu dan ambigu. disini aku akan berusaha untuk tulus, dan pasti kamu akan merasa cukup akan hadirku, hingga hanya ada syukur yang berkepanjangan saat kau tau bahwa akulah pasangan yang cocok untukmu,dan jujur aku ga tertarik dengan wanita lain karna ada kamu dan penyemangatkuu,Maafin ak ya queen cntk ak mngkin bkn hal yg terbaik dlm hdp mpiie tpi ak percya mpiie adalh hal terindh yg pernh ad dlm hdp aa cntk
 
