@@ -25,3 +25,7 @@
 ![gambar](IMG_6668.jpg)
 
 ### hai cantik ak mau ngasih tau banyak hal,tentang aku syang sama kamu ,dan takut kehilangan kamu,aku minta maaf kalo selma ini terus-terusan ngerepotin kamu,ngebebanin kamu dgn semua tingkahku,semoga kamu juga tau kalo aku selalu mengusahakan semua yang terbaik buat kamu,hubungan ini sering kali naik-turun dan aada pasang surutnya,tapi apapun yang terjadi aku mau kita tetap saling memiliki<3 aku belajar membuat mu bahagia ,ak ingin tinggal disisimu lebih dari selamanya ak yakin berjalan denganmu akan membuat kita lebih cepat sampai tujuan,aku sudah lebih dari bersyukur dengan ap yg kamu kasih padaku walaupun aku blm bisa membuat kmu bahagia layaknya wanita lain di luar sana yang di ratukan oleh prianya. ak selalu ingin membuatmu bahagia tpi entah itu kapan akan terjadi :) tapi aku akan berusaha,kita sama-sama sadar bahwa cinta gak akan selamanya bahagia pasti ada kecewanya ada lukanya, tapi kesepakatan kita menjalani hubungan tetap harus memperbaiki walaupun banyak masalahnya, semoga aku dan kamu banyak ketawanya dari pada air mata, kita buktikan sama-sama ya kalo kita dua orang yang begitu kuat mempertahankannya.i love you so much
+
+![gambar](IMG_20220619_193803.jpg)
+
+
